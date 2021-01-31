@@ -7,7 +7,10 @@ These are some ideas about what we were left with, in terms of the physical real
 The last few generations of humans grew up in a reality where entertainment was broadcasted to you, through radio or television.
 Content was created, curated, industries born to service humans by providing entertainment, alievating you with the responsibility 
 to entertain. Their stories became our stories and we told those stories amongst ourselves, regurgitating entertainment that was
-curated for us to converse about. Have you caught on to the problem with this yet?
+curated for us to converse about. 
+
+[Experiencing life became too expensive for a large population, so now we must broadcast experiences
+to your homes, so you can consume it rather than live it.]
 
 Once entertainment was an industry that could service human beings, now a business model was required to keep the machine going.
 The value entertainment brings is the attention of the human being. A human being's attention is the most valuable thing we 
