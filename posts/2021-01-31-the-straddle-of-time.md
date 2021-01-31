@@ -1,9 +1,9 @@
 **the straddle of time**
 
-**equipment**: technics sl1200-mk2, a mixer i want to take a bat to, and a set of krk5 monitors
-**vinyl**: jungle brothers - straight out the jungle
-**drink**: black tea, a splash of ACV, 'cause we like the funk
-**format**: raw
+**equipment**: technics sl1200-mk2, a mixer i want to take a bat to, and a set of krk5 monitors  
+**vinyl**: jungle brothers - straight out the jungle  
+**drink**: black tea, a splash of ACV, 'cause we like the funk  
+**format**: raw  
 
 it is the year 2021. the pandemic is still killing, 100 million infected with a 3% mortality rate. [i had to pause to remind myself if i was writing non-fiction or fiction.]
 as a product of the 80s i sit atop a perspective i never thought i would see, after 35 years in this reality: observing, learning and actively engaged you reach a level of
